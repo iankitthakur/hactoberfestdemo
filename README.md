@@ -4,4 +4,4 @@ Welcome!
 ANKIT KUMAR YADAV
 ankityadav1852@gmail.com
 Soumili @sequin_lush
-i.ankitthakur
+ankitthakur
